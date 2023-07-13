@@ -3,8 +3,12 @@ Thanks for checking out my profile. Much appreciated!
 Have a look around! I will be posting more projects as they become available. 
 
 Thomas Scott Ferguson
+
 Cybersecurity Analyst
+
 Professional Statement
+
+
 I am a highly motivated and dedicated cybersecurity professional with an unyielding
 passion for safeguarding organizations in our rapidly evolving digital landscape. With
 my exceptional ability to identify and mitigate potential risks, I bring a dynamic
